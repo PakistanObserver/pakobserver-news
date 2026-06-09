@@ -13,7 +13,7 @@ The Pakistan Peoples Party (PPP) has emerged as the leading party with 7 seats, 
 - MWM takes 1 seat
 - Tight political competition continues
 
-[Read Full Article on Pakistan Observer](https://pakobserver.net/gilgit-baltistan-gb-election-2026-results/)
+[Read Full Story on Pakistan Observer](https://pakobserver.net/gilgit-baltistan-gb-election-2026-results/)
 
 ## Source
 [Pakistan Observer](https://pakobserver.net)
