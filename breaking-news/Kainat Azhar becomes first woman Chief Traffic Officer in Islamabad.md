@@ -12,7 +12,7 @@ Senior Superintendent of Police (SSP) Kainat Azhar has been assigned the respons
 - Previously served as SSP Operations Multan
 - Decision seen as an important step for women in policing
 
-👉 [Read Full Article on Pakistan Observer](https://pakobserver.net/kainat-azhar-becomes-first-woman-chief-traffic-officer-in-islamabad/)
+👉 [Read Full News on Pakistan Observer](https://pakobserver.net/kainat-azhar-becomes-first-woman-chief-traffic-officer-in-islamabad/)
 
 ## Source
 [Pakistan Observer](https://pakobserver.net)
